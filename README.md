@@ -1,7 +1,8 @@
-![image](https://github.com/user-attachments/assets/54d7729b-b41b-4d80-9683-13a06af7e13c)
+![image](https://github.com/user-attachments/assets/8c606b45-f33c-460e-8216-1130c1728ae4)
 
 
-hiiiiiiii im sevvie!!!!!!2
+
+hiiiiiiii im sev!!!!!!2
 
 im a sagittarius idk if that matters anymore
 
