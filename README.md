@@ -1,18 +1,11 @@
-![image](https://github.com/user-attachments/assets/8c606b45-f33c-460e-8216-1130c1728ae4)
+![image](https://github.com/user-attachments/assets/d3e97842-f8b0-4df9-ac64-3a61dbeba004)
+
 
 
 
 hiiiiiiii im sev!!!!!!2
-
-im a sagittarius idk if that matters anymore
-
-19, ESTP, jhkcjkdhvgyushkm
-
-i rly like eminem andddd hyenas!!! talkto me abt those things
-
-i also liiike jjba, homestuck, mf doom, ttc, doctorwho/torchwood/class, anddd aib
-
-prolly more so maybe ask and ill rember
+jus t be nice and dont be weird and we can be friends idk...
+IFYOIU DONT LIKE ME JUST DONT INTERACT AUGUHGHHHH
 
 
 
